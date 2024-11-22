@@ -3,9 +3,10 @@
 - я художница, аниматор, разраб одной игры в роблоксе (она ещё в закрытом доступе и мало кто о ней знает) и 3д моделер
 - также я фурри (не бейте), и я шарю за 41 фандом (скоро их количество будет больше🤯)
 - больше прочитать можно в инфо канале в тг: @Chebupeka
-
+- (я без понятия зачем зарегалась в гитхабе..)
 -ENG
 - howdy, im Chebupeka😋
 - im a animator, the dev of one game in roblox (it is still private and only few ppl knows about it) and 3d modeler
 - also i am a furry (dont judge pls), and im in 41 fandom (soon there will be more of them🤯)
 - you can read more about me in info channel in telegram (russian social network if you dunno): @Chebupeka
+- (i dunno why i registered into github...)
